@@ -5,7 +5,7 @@
 
 - ⚡ Fun fact **If you live to be 70 years old, your heart will have beaten approximately 2.5 billion times! It's one of the hardest working muscles in your body.**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:"no communication"</h3>
 <p align="left">
 </p>
 
